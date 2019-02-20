@@ -9,4 +9,6 @@
 
 https://www.youtube.com/watch?v=aPoqsnse4nA&t=5s
 https://www.youtube.com/watch?v=KKF8_7Jx1TQ
-![image](https://user-images.githubusercontent.com/34998051/53100945-1f564b80-356c-11e9-9ed2-a872ddcb6e6d.png)
+![image](https://user-images.githubusercontent.com/34998051/53105035-b96dc200-3573-11e9-97bb-2a4245757a8d.png)
+
+![image](https://user-images.githubusercontent.com/34998051/53106841-3189b700-3577-11e9-8964-fbbe921802d0.png)
